@@ -1,6 +1,6 @@
 - ♡ Hi, I’m @gkyuliya
 - ⊹ I’m very passionate about coding and learning new things!
-- ✩ I’m currently studying and soon-to-be a front-end dev
+- ✩ I’m currently studying to become a front-end dev
 - 𐙚 Check out my profile to see my projects
 - ☾ Reach out to me via my email codewithyuli@gmail.com
 
